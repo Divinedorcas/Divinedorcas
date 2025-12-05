@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Divinedorcas.
+- 👋 Hi, I’m @Dorcas.
